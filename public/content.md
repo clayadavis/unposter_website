@@ -26,3 +26,6 @@ to present. Outside of our tracks and cohorts, we rarely have a chance to hear
 about each other's work.  With your participation in this event, we can all
 learn more about the amazing diversity of interests represented in our
 department.
+
+No RSVP needed to attend, sign up to present by **April 2** so we can get you in
+the printed program.
