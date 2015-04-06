@@ -11,8 +11,6 @@ visually.
 *   Faculty and other grad students are invited to attend; Info PhD students
     are invited to present.
 *   Presentations of proposed, in-progress, or completed work are all welcome.
-*   Besides the signup form that takes two minutes, there is no preparation
-    required.
 *   Presenters will be assigned shifts so that everyone gets a chance to
     mingle.
 *   Other interactive exhibits will encourage and visualize collaboration and
@@ -20,13 +18,9 @@ visually.
 *   Hors d'ouevres and refreshments will be provided. Beer and wine will be
     available for purchase.
 
-I strongly encourage Informatics PhD students to 
-[sign
-up](https://docs.google.com/forms/d/1UEAPZQTquaGi3T1Jmvu19UC6lcOb7Fu5Dlfmxs12RrA/viewform)
-to present. Outside of our tracks and cohorts, we rarely have a chance to hear
+Outside of our tracks and cohorts, we rarely have a chance to hear
 about each other's work.  With your participation in this event, we can all
 learn more about the amazing diversity of interests represented in our
-department.
+school.
 
-No RSVP needed to attend, sign up to present by **April 2** so we can get you in
-the printed program.
+No RSVP needed to attend, so please come and bring friends!
